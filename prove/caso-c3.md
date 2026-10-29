@@ -4,7 +4,7 @@
 
 ## Avviso A — correzione linguistica
 
-La comunicazione è pronta per la pubbicazione.
+La comunicazione è pronta per la pubblicazione.
 
 ## Avviso B — decisione specialistica
 
