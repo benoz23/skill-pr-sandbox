@@ -2,7 +2,7 @@
 
 ## Avviso A
 
-La procedura è pronta per la pubbicazione.
+La procedura è pronta per la pubblicazione.
 
 ## Avviso B
 
